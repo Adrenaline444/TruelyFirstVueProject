@@ -1,1 +1,1 @@
-1234567896
+![Snipaste_2022-05-03_02-50-34](C:\Users\Adrenaline444\Desktop\web\vue_2\vue2xiangmu\src\assets\img\Snipaste_2022-05-03_02-50-34.png)![Snipaste_2022-05-03_02-50-55](C:\Users\Adrenaline444\Desktop\web\vue_2\vue2xiangmu\src\assets\img\Snipaste_2022-05-03_02-50-55.png)![Snipaste_2022-05-03_02-50-07](C:\Users\Adrenaline444\Desktop\web\vue_2\vue2xiangmu\src\assets\img\Snipaste_2022-05-03_02-50-07.png)
